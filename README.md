@@ -17,7 +17,7 @@ In **Nigeria**, there are four seasons:
 + Hot Season 1
 + Hot Season 2
 
-These equate to thr four seasons in the western world, which are:
+These equate to the four seasons in the western world, which are:
 1. Summer
 2. Autumn
 3. Winter
